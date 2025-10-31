@@ -5,7 +5,7 @@
 </p>
 
 <p align="center"> <sub>4teen</sub> </p>
-  <p align="center"> <sub>Usually offtab, W2I to get my attention</sub></p>
+  <p align="center"> <sub>Usually offtab, whisp to get my attention</sub></p>
 <p align="center"> <sub>c+h encouraged! i dont mind boops + kisses</sub></p>
 <p align="center"> <sub>PLEASE dont copy / take heavy inspo</sub></p>
 <p align="center"> <sub>refrain from covering, unless c+hing</sub></p>
