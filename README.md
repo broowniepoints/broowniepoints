@@ -1,3 +1,9 @@
+<p align="center">
+  <a href="https://github.com/kittinan/spotify-github-profile">
+    <img src="https://spotify-github-profile.kittinanx.com/api/view?uid=31z5qv7ofuwhck72bhw232yunmg4&cover_image=true&theme=spotify-embed&show_offline=true&background_color=5e5e5e&interchange=true&profanity=false&mode=dark&bar_color=ffffff&bar_color_cover=false">
+  </a>
+</p>
+
 <p align="center"> ⋆˚꩜｡⋆｡𖦹°⭒˚｡⋆⋆.࿔:･  $${\color{grey}"And.before.I.knew.it..I.had.become.a.monster."}$$ ･:࿔.⋆⋆｡˚⭒°𖦹｡⋆｡꩜˚⋆ </p>
 <p align="center"> 
   <p align="center">
