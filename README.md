@@ -6,7 +6,7 @@
 </p>
 <p align="center"> <a href="https://broowniepoints.straw.page/">straw</a> | <a href="https://discordid.netlify.app/?id=769295221723758603">disc</a> | <a href="https://en.pronouns.page/@broowniepoints">prns</a>
 <p align="center"> <sub>4teen</sub> </p>
-  <p align="center"> <sub>Usually offtab, whisp to get my attention</sub></p>
+  <p align="center"> <sub>Usually offtab, W2I</sub></p>
 <p align="center"> <sub>c+h encouraged! i dont mind boops + kisses</sub></p>
 <p align="center"> <sub>please DON'T copy / take heavy inspo</sub></p>
 <p align="center">°꩜⋆.ೃ࿔*𖦹:･°꩜⋆.ೃ࿔*𖦹:･°꩜⋆.ೃ࿔*𖦹:･°꩜⋆.ೃ࿔*𖦹:･°꩜⋆.ೃ࿔*𖦹:･°꩜⋆.ೃ࿔*𖦹:･</p>
