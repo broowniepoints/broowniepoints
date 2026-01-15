@@ -1,5 +1,4 @@
 
-<p align="center"> ᶻ 𝗓 𐰁 </p>
 <p align="center"> 
   <p align="center">
   <img width="965" height="238" alt="Untitled design" src="https://github.com/user-attachments/assets/a74a4cfc-acba-4f60-96b3-53cb867d0c8f" />
