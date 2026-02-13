@@ -5,7 +5,7 @@
 </p>
 <p align="center"> <a href="https://discordid.netlify.app/?id=769295221723758603">disc</a> | ꜱᴛʀᴀᴡᴘᴀɢᴇ ᴡɪᴘ | <a href="https://en.pronouns.page/@broowniepoints">prns</a> 
 <p align="center"> <sub>𝟺𝚝𝚎𝚎𝚗</sub> </p>
-<p align="center"> ݁</p>
+<p align="center"> - </p>
 <p align="center">0:58 ─〇───── 3:16</p>
  <p align="center">⇄   ◃◃   ⅠⅠ   ▹▹   ↻</p>
 
